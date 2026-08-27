@@ -1,1 +1,1 @@
-https://klipy.com/gifs/lego-ninjago-ninjago-6
+https://bit.ly/4zyGY8S
