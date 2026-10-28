@@ -1,10 +1,1 @@
-⠞⡷⠃့   jay / ari  ◌๋ㅤ✿    ˚ㅤ𓈃
-
-
-ㅤㅤཾ𓈒♡︎ㅤjay + harumi fictkin ◟ ͜
-
-
-ㅤㅤㅤ  ◟ ͜✁ㅤू˚⁺  ninja__go__ㅤ⠀ ͚֯ ㅤ░ 𓉸  ⠀
-
-
-ㅤㅤㅤ ྀི◟ ͜ㅤ𓏼 𓎢𓎟𓎡 𓈒ㅤ ۪۫۫𓏫    𓏼˚̣̣̣♪۪   ͜ ◞།
+idk how to do ts nor code STOPP
